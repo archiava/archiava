@@ -1,16 +1,26 @@
-## Hi there 👋
+<h1 align="center">Hey, I'm Archiava 👩‍🎨</h1>
+<p align="center">📐 Architecture Student | 📸 Visual Thinker | 🕊 Slow Creative</p>
 
-<!--
-**archiava/archiava** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+🪷 **About Me**  
+- 🎓 B.Arch student | Passionate about storytelling through spaces  
+- 🌍 Interested in diplomacy, development & cultural heritage  
+- 🐾 Cat mom | Plant lover | Slow living explorer  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+🔧 **Projects & Interests**  
+- 🏛 Architectural sketches & model making  
+- 🧵 DIY, crochet harness designs for kittens  
+- 🗺 Documenting real-life inspirations through slow visuals  
+- 🛠 Future: architecture x diplomacy
+
+---
+
+📫 **Connect with me**  
+- 📸 Instagram: [@theslowpages](https://instagram.com/theslowpages)  
+- 📨 Email: [add your email here if you want]
+
+---
+> *“Creating meaningful spaces, one detail at a time.”*
