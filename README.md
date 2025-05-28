@@ -21,7 +21,7 @@
 📫 **Connect with me**  
 - 🌿 Slow Visual Diary: [@theslowpages](https://instagram.com/theslowpages)  
 - 🙋‍♀️ Personal Insta: [@_.nyx12](https://instagram.com/_.nyx12)  
-- 📨 Email: [add your email here if you want]
+- 📨 Email: [arxhiava@gmail.com]
 
 ---
 > *“Creating meaningful spaces, one detail at a time.”*
