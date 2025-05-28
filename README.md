@@ -19,7 +19,8 @@
 ---
 
 📫 **Connect with me**  
-- 📸 Instagram: [@theslowpages](https://instagram.com/theslowpages)  and [@_nyx12] (https://instagram.com/_nyx12)
+- 🌿 Slow Visual Diary: [@theslowpages](https://instagram.com/theslowpages)  
+- 🙋‍♀️ Personal Insta: [@_.nyx12](https://instagram.com/_.nyx12)  
 - 📨 Email: [add your email here if you want]
 
 ---
