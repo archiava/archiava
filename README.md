@@ -19,7 +19,7 @@
 ---
 
 📫 **Connect with me**  
-- 📸 Instagram: [@theslowpages](https://instagram.com/theslowpages)  
+- 📸 Instagram: [@theslowpages](https://instagram.com/theslowpages)  and [@_nyx12] (https://instagram.com/_nyx12)
 - 📨 Email: [add your email here if you want]
 
 ---
