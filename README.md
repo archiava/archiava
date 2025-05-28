@@ -1,4 +1,4 @@
-<h1 align="center">Hey, I'm Archiava 👩‍🎨</h1>
+<h1 align="center">Hey, I'm Ava 👩‍🎨</h1>
 <p align="center">📐 Architecture Student | 📸 Visual Thinker | 🕊 Slow Creative</p>
 
 ---
